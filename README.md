@@ -1,1 +1,3 @@
-# devops-aula02.
+Angelina Jolie
+Angela White
+Johnny Sins
